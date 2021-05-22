@@ -1,1 +1,0 @@
-# hasaneryilmaz.github.io
